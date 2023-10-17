@@ -1,21 +1,21 @@
-# Replace with recipe name
+# Granola & Yogurt Bowls 
 
-## Servings: 
+## Servings: 1
 
-## Time to prepare: 
+## Time to prepare: 5 minutes 
 
-## Ingredients:
-
-
-## Equipment needed:
+## Ingredients: 1/2 cup plain greek yogurt, 1/4 cup blueberries, 1/4 cup raspberries, 1/2 cantaloupe, 1/2 Tbsp pumpkin seeds, 1/2 Tbsp sliced almonds, 1/2 Tbsp coconut shavings, and 1/4 cup granola 
 
 
-## Steps for preparation:
+## Equipment needed: None
 
 
-
-### Notes:
+## Steps for preparation: 1. Place yogurt in a bowl. 2. Add the washed fruit. 3. Top with the seeds, nuts, coconut, and granola. 4. serve and enjoy! 5. mix the ingredients. 
 
 
 
-### Codemates #
+### Notes: None
+
+
+
+### Codemates #: CodeMate5
