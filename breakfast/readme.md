@@ -14,7 +14,7 @@
 
 
 
-### Notes: None
+### Notes: Buy organic products from Berkeley Bowl to improve the taste!
 
 
 
