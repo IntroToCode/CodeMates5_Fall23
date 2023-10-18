@@ -13,7 +13,7 @@
 ## Steps for preparation: 1)Pan Sear and cook chicken breast for 10 mins on medium high heat, 2)Once cooked to 165 degree Fahrenheit, let chicken rest, 3)Bring water to Boil, 4) Boil spaghetti for 8-10 mins, 5)save some pasta water 6)Drain water from pasta and re-add pot to the stove, 7) Add pesto sauce to the pasta and simmer gently and briefly on low heat, 8)add pasta water to the pot 9) Serve on plates, incporate chicken, and grate parmesan over the pasta before serving
 
 
-### Notes: N/A
+### Notes: This is a great recipe, but do not cook this if you are hosting Italian people for dinner!
 
 
 
