@@ -2,7 +2,7 @@
 
 ## Servings: 1
 
-## Time to prepare: 5 minutes 
+## Time to prepare: 5 minutes for an experienced chef, 10 minutes for a beginner
 
 ## Ingredients: 1/2 cup plain greek yogurt, 1/4 cup blueberries, 1/4 cup raspberries, 1/2 cantaloupe, 1/2 Tbsp pumpkin seeds, 1/2 Tbsp sliced almonds, 1/2 Tbsp coconut shavings, and 1/4 cup granola, honey
 
@@ -13,8 +13,7 @@
 
 
 
-### Notes: Buy organic produce to make this tastier
-
+### Notes: Buy organic produce to make this tastier!
 
 
 ### Codemates #: CodeMate5
