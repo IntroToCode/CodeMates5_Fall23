@@ -14,8 +14,7 @@
 
 
 
-### Notes: Buy organic produce to make this tastier
-
+### Notes: Buy organic produce to make this tastier!
 
 
 ### Codemates #: CodeMate5
