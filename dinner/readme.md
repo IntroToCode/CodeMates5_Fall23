@@ -4,7 +4,7 @@
 
 ## Time to prepare: 30 mins
 
-## Ingredients: Spaghetti - 8 oz., Pesto Sauce - 5.4 oz., Parmesan Cheese - 4.3 oz., Chicken Breast 12.0 oz., Butter 2.0 oz., olive oil, salt and pepper, water for boiling
+## Ingredients: Spaghetti - 8 oz., Pesto Sauce - 5.4 oz., Parmesan Cheese - 4.3 oz., Chicken Breast 12.0 oz., Butter 2.0 oz., olive oil, salt and pepper, water for boiling, chile pepper
 
 
 ## Equipment needed: Pot, sauce pan, cheese grater, cuttlery, plates
