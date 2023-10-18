@@ -4,7 +4,7 @@
 
 ## Time to prepare: 5 minutes 
 
-## Ingredients: 1/2 cup plain greek yogurt, 1/4 cup blueberries, 1/4 cup raspberries, 1/2 cantaloupe, 1/2 Tbsp pumpkin seeds, 1/2 Tbsp sliced almonds, 1/2 Tbsp coconut shavings, and 1/4 cup granola 
+## Ingredients: 1/2 cup plain greek yogurt, 1/4 cup banana, 1/4 cup raspberries, 1/2 cantaloupe, 1/2 Tbsp pumpkin seeds, 1/2 Tbsp sliced almonds, 1/2 Tbsp coconut shavings, and 1/4 cup granola 
 
 
 ## Equipment needed: None
